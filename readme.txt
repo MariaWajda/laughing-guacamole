@@ -1,1 +1,2 @@
 Skrypty w Julii
+Jajajajaja 
